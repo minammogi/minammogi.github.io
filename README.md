@@ -1,0 +1,1 @@
+# minammogi.github.io
